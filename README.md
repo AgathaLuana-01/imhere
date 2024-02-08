@@ -1,5 +1,1 @@
-![Simulator Screenshot - iPhone 15 - 2024-02-08 at 16 09 03](https://github.com/AgathaLuana-01/imhere/assets/106383836/960d9e17-3ccb-48d7-a335-79e12870c340)![Uploading Simulator Screenshot - iPhone 15 - 2![Simulator Screenshot - iPhone 15 - 2024-02-08 at 16 09 30](https://github.com/AgathaLuana-01/imhere/assets/106383836/44e308b4-240b-4386-8818-57e177ea0240)
-![Simulator Screenshot - iPhone 15 - 2024-02-08 at 16 09 13](https://github.com/AgathaLuana-01/imhere/assets/106383836/1c569a5a-1074-4886-9e89-a41716a4616d)
-![Simulator Screenshot - iPhone 15 - 2024-02-08 at 16 09 09](https://github.com/AgathaLuana-01/imhere/assets/106383836/995291ec-7c0b-4e5f-8e51-2b3be904109a)
-![Simulator Screenshot - iPhone 15 - 2024-02-08 at 16 09 06](https://github.com/AgathaLuana-01/imhere/assets/106383836/2c29d31c-24bf-470a-a545-d23fb74e1100)
-024-02-08 at 16.09.03.png…]()
+![Simulator Screenshot - iPhone 15 - 2024-02-08 at 16 09 03](https://github.com/AgathaLuana-01/imhere/assets/106383836/960d9e17-3ccb-48d7-a335-79e12870c340)![Uploading Simulator Screenshot - iPhone 15 - 
